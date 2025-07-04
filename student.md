@@ -1,2 +1,0 @@
-**Amruta is a student.**
-
